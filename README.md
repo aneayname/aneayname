@@ -1,0 +1,5 @@
+- Hi, I’m @aneayname
+- I’m interested in coding new stuff
+- I’m currently learning how to draw like a pro :)
+- I’m looking to collaborate on this and many sites
+- If u want to reach or talk to me my email is hascenci0009@mymail.lausd.net
